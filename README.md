@@ -18,7 +18,7 @@
 
 > This is info for when we play games ,,
 
-We go by @GloomyCollective. .
+We go by @HowlingCollective. .
 
 Information here is only what we're comfortable sharing publicly to **hopefully** make friends!
 
@@ -26,7 +26,7 @@ Information here is only what we're comfortable sharing publicly to **hopefully*
 
 ## 🌼 ABOUT US
 
-**Name:** GloomyCollective
+**Name:** HowlingCollective
 
 **Pronouns:** He/Him , They/Them , We/Us
 
