@@ -30,7 +30,7 @@ Information here is only what we're comfortable sharing publicly to **hopefully*
 
 **Pronouns:** He/Him , They/Them , We/Us
 
-**System:** OSDD-1A
+**DID system.**
 
 **Timezone:** EST
 
